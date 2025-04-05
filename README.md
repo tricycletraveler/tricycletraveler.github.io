@@ -3,11 +3,11 @@
 ------------
 - [Twitter](https://x.com/tricycletourist "波太郎三轮车自驾游")
 - ----------
-- [抖音](http://https://www.douyin.com/user/MS4wLjABAAAACgXJSpZ_cMnggS86QVCGlqGolaN78iBCrq0Uq_BL8xlSt5XQLL7E1debQEQqYRtB "波太郎三轮车自驾游")
+- [抖音](https://www.douyin.com/user/MS4wLjABAAAACgXJSpZ_cMnggS86QVCGlqGolaN78iBCrq0Uq_BL8xlSt5XQLL7E1debQEQqYRtB "波太郎三轮车自驾游")
 - ----------
 - [西瓜视频](https://www.ixigua.com/home/1172512711118627 "波太郎三轮车自驾游")
 - ----------
 - [哔哩哔哩](https://space.bilibili.com/3546576676981201 "波太郎三轮车自驾游")
 - ----------
-- [小红书](http://https://www.xiaohongshu.com/user/profile/64a1291e000000000b0155ba "波太郎三轮车自驾游")
+- [小红书](https://www.xiaohongshu.com/user/profile/64a1291e000000000b0155ba "波太郎三轮车自驾游")
 - ----------
